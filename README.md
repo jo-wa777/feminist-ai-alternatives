@@ -1,0 +1,1 @@
+# feminist-ai-alternatives
